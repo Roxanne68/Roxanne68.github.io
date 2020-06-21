@@ -18,3 +18,5 @@ Wie Julia Roberts immer sagt:
 
 > Ich war eine Mode-Idiotin, weil ich mich nie aufstylen mußte, um Erfolg zu haben. 
 > Ich hätte im Pyjama ins Studio gehen können. Erst jetzt sehe ich, daß Kleidung bequem und zudem stilvoll sein kann.
+
+<img src="https://en.wikipedia.org/wiki/File:Julia_Roberts_2011_Shankbone_3.JPG"/>
