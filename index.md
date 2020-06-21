@@ -13,3 +13,8 @@ Weitere Kinohits hatte sie mit Ocean’s Eleven (2001), der Fortsetzung Ocean’
 * Scheidungskind
 * Wahnsinniges Lächeln
 * Oscar Gewinnerin 2000
+
+Wie Julia Roberts immer sagt:
+
+> Ich war eine Mode-Idiotin, weil ich mich nie aufstylen mußte, um Erfolg zu haben. 
+> Ich hätte im Pyjama ins Studio gehen können. Erst jetzt sehe ich, daß Kleidung bequem und zudem stilvoll sein kann.
